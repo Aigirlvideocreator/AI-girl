@@ -1,0 +1,2 @@
+# AI-girl
+Somthing thinkable 
